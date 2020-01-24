@@ -3,7 +3,7 @@
 
 ## Who are we?
 well we are a group of 3 from diffrent comapanies.
-I am from Imgineee, and SkyPirateJean (we have code names) is from Sup corporations and Supforest is from forest animations.
+I am from Imgineee, and Business Chicken (or the cyan crusader) is from Sup corporations and Supforest is from forest animations.
 
 
 ### Imagineee
